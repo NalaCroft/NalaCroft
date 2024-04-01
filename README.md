@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @NalaCroft
+- 👀 interested in Data Analytics
+- 🌱 currently learning "Intro to Data Analytics" 
+- 💞️ I’m looking to collaborate on: Practical applications of Data Analytics
+- 📫 Reach me: on T.me 
+- ⚡ fact no fun: LOTR enthusiast
